@@ -18,6 +18,12 @@
 - 📫 How to reach me through whats'app **+92-321-7855411**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LqThqC7pjbYpaRGaKtZbbfGbSq8XC2rP/view](https://drive.google.com/file/d/1LqThqC7pjbYpaRGaKtZbbfGbSq8XC2rP/view)
+- # Creds Ambassador  
+
+🎉 **Proud to Be a Creds Ambassador!**  
+
+I am honored to have been appointed as an **Ambassador for Creds**, the #1 community that celebrates the achievements of software engineers, developers, and coders worldwide. 🌟  
+
 
 - ⚡ Fun fact **Programmer**
 
